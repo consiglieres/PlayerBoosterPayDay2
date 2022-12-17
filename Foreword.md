@@ -3,3 +3,4 @@ I hope that this new year you will like my gift. And you will stop thinking abou
 Archive password: 1209384756. If needed.
 
 If you have any questions about this miracle, please write here: https://t.me/ConsigliereDKSEnglish
+If you want to buy private write also on the link above.
